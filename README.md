@@ -1,3 +1,0 @@
-# Pol
-Pol
-da
